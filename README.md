@@ -3,7 +3,7 @@
 > *But this depression ain't taking me hostage,* <br>
 > *I've been patiently watching this game, pacing these hallways,* <br>
 > *You had faith in me always."* <br>
-  
-<p align="center">
-![tumblr_or96pn3Nd91w1kerio1_400](https://github.com/user-attachments/assets/3cdf0a4d-cb42-46dd-bb92-fde46a545bb2)
-</p>
+
+  ![tumblr_or96pn3Nd91w1kerio1_400](https://github.com/user-attachments/assets/e5d7aa8c-7a4c-4299-bd9a-43ce31b125ba)
+
+
